@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Leyi999
 - 👀 I’m interested in C/C++ Liunx sys&Network Programming
--  singing jumping cocking and🏀
+- 🐔 singing jumping rapping and🏀
 - 🌱 I’m currently learning Linux
 - 📫 How to reach me 1779579409@qq.com
 
